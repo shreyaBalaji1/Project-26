@@ -1,0 +1,1 @@
+This recipe explains how to make strawberry ice-cream
